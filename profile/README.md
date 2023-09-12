@@ -1,4 +1,4 @@
-![WeDAO Labs](https://twitter.com/dao_we68741/header_photo)
+![WeDAO Labs](https://drive.google.com/file/d/1dI5BaXC0Vv86s_uNX5SRjPQ3ACeJny59/view?usp=drive_link)
 
 <!--
 
