@@ -1,4 +1,4 @@
-![WeDAO Labs](https://app.happiairdrop.xyz/1500x500.jpg)
+![WeDAO Labs](https://app.happiairdrop.xyz/1500x500.jpeg)
 
 <!--
 
