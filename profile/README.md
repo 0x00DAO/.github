@@ -1,4 +1,4 @@
-![WeDAO Labs](https://drive.google.com/file/d/1dI5BaXC0Vv86s_uNX5SRjPQ3ACeJny59/view?usp=drive_link)
+![WeDAO Labs](https://app.happiairdrop.xyz/1500x500.jpg)
 
 <!--
 
