@@ -1,4 +1,4 @@
-## Hi there 👋
+![WeDAO Labs](https://twitter.com/dao_we68741/header_photo)
 
 <!--
 
